@@ -8,4 +8,3 @@
 - 📫 How to reach me: ✍
 - 😄 Pronouns: 🚵‍♂️
 - ⚡ Fun fact: A Porsche for a gift would suffice!
--->
